@@ -9,4 +9,3 @@
 
 00001088957195sp@al.educacao.sp.gov.br
 
-https://media1.tenor.com/m/lN7OvgMccHUAAAAC/sonic-sonic-the-hedgehog.gif
